@@ -46,13 +46,13 @@ tags:
 
 [**Why Christians Should Believe in Divine Simplicity**](https://credomag.com/article/why-christians-should-believe-in-divine-simplicity/)
 
-[**Should a pastor be an expert at everything?](https://rts.edu/resources/should-a-pastor-be-an-expert-at-everything/)              [article](https://michaeljkruger.com/pastors-you-dont-have-to-be-an-expert-on-everything/)**
+[**Should a pastor be an expert at everything?**](https://rts.edu/resources/should-a-pastor-be-an-expert-at-everything/)              [article](https://michaeljkruger.com/pastors-you-dont-have-to-be-an-expert-on-everything/)
 
-[**Are You Really Preaching Christ?](https://www.desiringgod.org/articles/are-you-really-preaching-christ)** by michael reeves
+[**Are You Really Preaching Christ?**](https://www.desiringgod.org/articles/are-you-really-preaching-christ) by michael reeves
 
-[**We Are Not Saved by Grace](https://www.reformation21.org/articles/we-are-not-saved-by-grace.php)** by michael reeves
+[**We Are Not Saved by Grace**](https://www.reformation21.org/articles/we-are-not-saved-by-grace.php) by michael reeves
 
-[**Adam and Eve](https://www.reformation21.org/articles/adam-and-eve.php)** by michael reeves
+[**Adam and Eve**](https://www.reformation21.org/articles/adam-and-eve.php) by michael reeves
 
 [幫幫我！我的家人讓我抓狂！](https://tc.tgcchinese.org/article/help-folks-drive-crazy?fbclid=IwZXh0bgNhZW0CMTEAAR0V54t4VxaMwCHDJnLqF2usS1j-JFEa0Sb-O0qfQuxfMcJvyp_imJuW1E4_aem_rOrh83Rd3qEV-SamZn4eGg)
 
