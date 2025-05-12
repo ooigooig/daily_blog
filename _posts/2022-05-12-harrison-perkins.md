@@ -6,8 +6,8 @@ header-style: text
 catalog: true
 tags:
     - Gospel
-    - reviews
-    - 
+    - Reviews
+    - Translation
 ---
 
 帮助会众定睛基督，而不是他们感觉如何；帮助他们看见祂的荣美，而不是质疑他们思想祂的荣美到了何等完全的程度；鼓励他们把基督丰丰富富藏在心里，兴旺灵命。——Harrison Perkins
